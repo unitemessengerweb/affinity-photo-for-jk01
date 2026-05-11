@@ -1,4 +1,4 @@
-# 
+# exclusive Affinity Photo for PC | Affinity Photo for Windows Addon | adjustment-layers + layer-based-editing is the best Affinity Photo for PC | Affinity Photo for Windows addon,
 
 
 
